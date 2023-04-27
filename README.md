@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @ToshioLucas
-- 👀 I’m interested in Belugas whales
+- 👀 I’m interested in nothing 
 - 🌱 I’m currently learning art
 - 💞️ I’m looking to collaborate on games
 - 📫 How to reach me ...
